@@ -1,1 +1,0 @@
-# SixZensED-Program-Python.KrasetsartUniversity
